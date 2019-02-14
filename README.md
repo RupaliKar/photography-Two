@@ -1,0 +1,1 @@
+# Photography Template (Multipage)
